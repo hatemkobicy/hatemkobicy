@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **hatem.kobicy@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1EIL9usX-DlNzuD160wsgcZy6q0bzZ7be/view?usp=sharing](https://drive.google.com/file/d/1EIL9usX-DlNzuD160wsgcZy6q0bzZ7be/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
